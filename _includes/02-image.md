@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://github.com/karlof002)
+![Image of Yaktocat](https://i.redd.it/fr989oxe0u951.jpg)
